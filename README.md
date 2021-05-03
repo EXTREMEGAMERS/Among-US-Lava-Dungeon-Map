@@ -9,7 +9,7 @@ Subscribe to My Channel Most of My next Mods will be when I reach the sub goal I
 This Mod is a collab Mod with DISABLED WORX his channel https://www.youtube.com/channel/UCNB0QW6GY3LZGZUPw7ejKxQ
 
 Video
-Check the video for understanding the mod before downloading --
+Check the video for understanding the mod before downloading -- https://youtu.be/OW2c4Jo-Q-o
 
 Made using levelimpostor -- levelimposter.net
 
